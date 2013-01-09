@@ -1,1 +1,1 @@
-red blue yellow and green
+red blue yellow and green or pink
